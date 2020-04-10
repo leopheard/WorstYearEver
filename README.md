@@ -1,6 +1,6 @@
 <a href="kodi.tv">KODI<a> / XBMC / Firestick audio addon for the <a href="www.worstyearpod.com">Worst Year Ever</a> podcast.<br>
 
-<img src="https://feeds.megaphone.fm/HSW6099467034"><br>
+<img src="https://is1-ssl.mzstatic.com/image/thumb/Podcasts113/v4/ac/db/af/acdbaf15-b1e1-627c-2861-3f962c6c7bed/mza_2562456621735258382.png/600x600bb.jpg"><br>
 
 2020 isn't going to be fun for anybody, left, right, or center. What many call the Most Important Election of Our Lifetime is going to be exhausting, ugly, angry, and probably at least a little racist. Listen as Robert Evans, Katy Stoll, and Cody Johnston try to keep level heads covering the election while traveling the country, from the Iowa Caucus to gun shows and anti-vaccine conventions, finding out what Real America really wants and thinks during the, “Worst Year Ever"<br>
 
